@@ -64,11 +64,22 @@ been types of miracles - Creation (Prophesied Recreation), medical, weather, spi
 <b> The Case for Miracles - Lee Strobel </b>
 
 <b> Miracles - C.S. Lewis (Can be verbose) </b>
+
+<b>The Scriptures Themselves</b>
+
+People are way too sceptical of the Bible. 
+"Luke consistently nails the historical details mentioned in the Bible." - Drive Thru History.
+Paul's letters are essentially like journal entries, with one trial transcript, a shipwreck where everyone
+survived, a stoning, beatings, miracles, prophecies, and persistence and success through peaceful freedom of speech. 
+Matthew and John are two of the disciples and firsthand accounts of Jesus' supernatural ministry. 
+Luke is a physician and friend of Peter and John Mark was Peter's interpreter in Rome, so those are
+two secondhand accounts. Early converts to Christianity did not want to believe and yet did so anyway. 
+They overcame anti-Semitism, habits of the brain, history, culture, the entrenched economics of paganism, and threats to their life
+to believe and spread Jesus/Yeshua's message of peace, forgiveness, mercy, equality, and love. Why?
+
+<b>God is real and Jesus is real.</b>
  
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+&emsp; &emsp; &nbsp;"For everyone who asks receives; the one who seeks finds; and to the one who knocks, the door will be opened." Luke 11:10 
 
 <!---
 333-Believer-Eric/333-Believer-Eric is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
